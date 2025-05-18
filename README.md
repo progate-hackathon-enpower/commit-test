@@ -13,7 +13,7 @@ aaa
 wgfuhewughaughwiughaeiwhgfuiewrghaweiuhgewahgiuguierhgiuwerhgliuahwfiuewhg;f
 あfwfwあファファウェf
 b
-k
+kか
 fゔぁゔぁw
 egegege
 fゔぁゔぁw
