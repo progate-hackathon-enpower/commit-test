@@ -6,10 +6,11 @@ aaa
 あwsふぁwふぇわ
 がえrがえrがうぇr
 あwふぇがえrファエアフェがw
-がえrがえrがうぇrじ
+がえrがえrがうぇrじぃううb；王h
 がえrがえrがうぇr
 ああああ
 あああ
 wgfuhewughaughwiughaeiwhgfuiewrghaweiuhgewahgiu
 あfwfw
 b
+k
