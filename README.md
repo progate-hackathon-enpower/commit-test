@@ -11,7 +11,7 @@ aaa
 ああああjんk敢rくfhq3；王fhq3おいうdふぇd
 あああ
 wgfuhewughaughwiughaeiwhgfuiewrghaweiuhgewahgiu
-あfwfw
+あfwfwあファファウェf
 b
 k
 fゔぁゔぁw
